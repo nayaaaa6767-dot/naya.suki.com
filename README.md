@@ -1,0 +1,2 @@
+# naya.suki.com
+Suki
